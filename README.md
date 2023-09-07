@@ -29,10 +29,10 @@ because its application can be used by anyone in business to business or small b
 consumer level. Outpacing it’s competition in the industry 
 
 # Recommendation
-In my peek at the company I would suggest they stay private and fortify their offering, by offering better analytics you can have more developers and creatives gravitate to their platform that outpaces and ascends most of the already steep competition. The company also isn't publicly traded so you cannot gauge their metrics just take their word for certain metrics. give insight like their
- key performance indicators or data, a stronger security system may help the company gain more exposure in the public's eye and press . maybe more commercials to gain a second wind in a long journey in financial services .
- off shooting the company's golden goose egg, they are a excellent choice of providing services for 
-clients and the right partner for such if you are in business that require safe bank authorized web development
+In my peek at the company I would suggest they stay private and fortify their offering, by offering better analytics the company can incentivise more developers and creatives to gravitate to their platform that outpaces and ascends most of the already steep competition. The company also isn't publicly traded so you cannot gauge their metrics you have to just take the word of their partners; Chime, Venmo. just to name a few, and to take their work for certain metrics. Things like their Earning are safguarded for the most part that way if anyone wanted to kmow how the quarter went they have no clue, they have to trade their competition.
+ key performance indicators or data, a stronger security system may help the company gain more exposure in the public's eye and press . More marketing can help innovation in the long road  when it comes to financial services the company is just getting started .
+ The company's golden goose egg, data is secure and is a excellent choice when providing original services for 
+clients Ranging from Beacons to Column and the right partner for such if you are in business that require safe bank authorized web development
 
 
 
