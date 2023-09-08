@@ -1,5 +1,5 @@
  # Plaid Case Study
-   >##  *Plaid* reshapping the fabric of transactions
+   ###  *Plaid* reshapping the fabric of transactions
  
  
  
